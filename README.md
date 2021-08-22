@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-- 👋 Hi, I’m Sai Soumyak Nanda
+- 👋 I’m Sai Soumyak Nanda
